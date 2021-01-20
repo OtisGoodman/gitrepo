@@ -1,1 +1,1 @@
-Tacos are better than Sandwhiches change my mind.
+Sandwhiches are better than tacos change my mind.
